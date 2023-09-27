@@ -11,6 +11,13 @@
 
 ---
 
+【帮助我走得更远，阿严需要你的赞助】
+
+- Patreon: <https://www.patreon.com/RYanIndieDev>
+- 爱发电：<https://afdian.net/a/RYanIndieDev>
+
+---
+
 【Ep.01】
 
 - 直播时间：2023年9月19日
