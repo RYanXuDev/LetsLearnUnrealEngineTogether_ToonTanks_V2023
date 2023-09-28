@@ -101,8 +101,8 @@
 
 - 直播时间：2023年9月25日
 
-- YouTube: <https://youtube.com/live/B3Eu1heIfiA>
-- Bilibili: <>
+- YouTube: <https://youtu.be/A3g5PeLvUew>
+- Bilibili: <https://www.bilibili.com/video/BV1Nu41137gB>
 
 主要内容：
 
@@ -118,7 +118,7 @@
 - 直播时间：2023年9月26日
 
 - YouTube: <https://youtube.com/live/Pt8p-4VZFgk>
-- Bilibili: <>
+- Bilibili: <https://www.bilibili.com/video/BV11u4y147uk>
 
 主要内容：
 
